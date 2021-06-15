@@ -2,4 +2,4 @@
 Life of Smita: "Welcome to my blog"
 ---
 
-I'm glad you are here. I plan to talk about My life.
+Thanks for visiting my website. I plan to go over who I am, whst my interests are and also plan to share some of my socials in this post.
